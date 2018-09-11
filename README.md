@@ -12,5 +12,13 @@ https://pan.baidu.com/s/1c0GjoSK?fid=1368219992
 
 操作系统概念第七、八、九版中文版
 
+https://pan.baidu.com/s/1oUmXVpSKiQa2cmb6hdTxFw
+
+http://www.java1234.com/a/javabook/javabase/2017/0712/8420.html
+
+http://www.java1234.com/a/javabook/javabase/2017/0715/8433.html
+
+http://www.java1234.com/a/javabook/javabase/2017/0715/8435.html
 
 
+http://www.java1234.com/a/javabook/javabase/2018/0316/10654.html
